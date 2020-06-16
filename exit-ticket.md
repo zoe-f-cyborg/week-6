@@ -4,7 +4,7 @@ For this week, I decided to do something a little different. [Hope you enjoy!](h
 
 ----------------------------------------------------------------------
 
-Thank you for all youre help in these last few weeks. This course has been quite enlightening. It didn't so much five me a set of concrete tools than a new approach, a new outlook, to historical analysis. It showed me just a handful of the many different ways you can collect, analyze, and display data. And now I will grade myself on each of the 5 learning outcomes described on the course website:
+Thank you for all youre help in these last few weeks. This course has been quite enlightening. It didn't so much five me a set of concrete tools than a new approach, a new outlook, to historical analysis. It showed me just a handful of the many different ways you can collect, analyze, and display data. Since my storymap doesn't really cover them in detail, below I have given myself a grade on each of the 5 learning outcomes described on the course website:
 
 1. "analyze and assess historical documents, artifacts, and other primary sources"
 
